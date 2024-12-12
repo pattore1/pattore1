@@ -1,4 +1,0 @@
-Hi, i'm Andrea! ✋ 		
-I'm a Polimi CS student, attending Elis.org's campus.
-I'm interested in New Technologies 📈, Space 🚀 and Cybersecurity 🔐.
-I also like videogames 🎮, mangas 📖 and photography 📸.
